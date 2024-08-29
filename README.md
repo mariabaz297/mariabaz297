@@ -13,10 +13,13 @@ maria.bazzotti.ribeiro@escola.pr.gov.br
 https://media1.tenor.com/m/YxXn07ofanQAAAAC/patrick-star-in-love.gif
 
  
-- 
+- Maria Vitória
 
+objetivo
+Atuar na área de economia
 
-
-
-
-
+Eu sou estudante ainda
+cursos complementares
+Gestão de Transportes
+Comércio Exterior
+Gestão de Logística Portuaria
